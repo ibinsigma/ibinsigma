@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **niloysarkarranchi@gmail.com**
 
-- 📄 Know about my experiences <a href="www.niloysarkar.ml" target="_blank"> NiloySarkar </a>
+- 📄 Know about my experiences <a href="https://www.niloysarkar.ml" target="_blank"> NiloySarkar </a>
 
 - ⚡ Fun fact **I can beat you in a table tennis match :D**
 
